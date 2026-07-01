@@ -1,1 +1,1 @@
-
+## Please note that this is my only official account along with aphsweden. I do not use alternative or "backup" profiles. If any account claiming to be me sends you a message, uses slurs, or acts suspiciously, please do not reply and check if it is me. If not, block and report them immediately.
